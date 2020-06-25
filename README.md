@@ -1,3 +1,1 @@
-Thanks for downloading this theme!
-
-Theme Name: Saurabh
+https://thesunrisehotel2020.github.io/sunrise123/index.php
